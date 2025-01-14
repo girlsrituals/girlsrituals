@@ -11,4 +11,4 @@ Abbreviations youll mostly see in my name: w2i (whisper to interact), iwc/iwec (
 
 ill mostly have w2i in my name Its because im offtab most of the time So theres a 90% chance i wont see messages you send in public chat sorreeyy. So i prefer whispering that way i can see the messages you send
 
-if i have iwc in my name it means Im currently not in a stable mood so please be aware of that but it still doesnt mean you cant interact Im just a bit under the weather at the moment!! Iwec is a whole different story i might act cold and dry and im currently really unstable and prone to lashing out please be aware of this as well
+if i have iwc in my name it means Im currently not doing okay and might be going thru shit so please be aware of that but it still doesnt mean you cant interact Im just a bit under the weather at the moment!! Iwec is a whole different story i might act cold and dry and im not in a stable mood please be aware of this as well
