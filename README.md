@@ -7,4 +7,8 @@ And :
 
 [Read my txto](https://txto.eu.org/shift)
 
-I'm offtab like 90% of the time W2i thanks have a lovely day
+Abbreviations youll mostly see in my name: w2i (whisper to interact), iwc/iwec (interact with caution/interact with extreme caution), or afk (away from keyboard). 
+
+ill mostly have w2i in my name Its because im offtab most of the time So theres a 90% chance i wont see messages you send in public chat sorreeyy. So i prefer whispering that way i can see the messages you send
+
+if i have iwc in my name it means Im currently not in a stable mood so please be aware of that but it still doesnt mean you cant interact Im just a bit under the weather at the moment!! Iwec is a whole different story i might act cold and dry and im currently really unstable and prone to lashing out please be aware of this as well
