@@ -6,7 +6,7 @@ Hiiiiiieeeeee im vivister
 
 [Read my txto](https://txto.eu.org/shift)
 
-Abbreviations youll mostly see in my name: w2i (whisper to interact), iwc/iwec (interact with caution/interact with extreme caution), or afk (away from keyboard). 
+Abbreviations youll mostly see in my name: w2i (whisper to interact), iwc/iwec (interact with caution/extreme caution), or afk (away from keyboard). 
 
 ill mostly have w2i in my name Its because im offtab most of the time So theres a 90% chance i wont see messages you send in public chat sorreeyy. So i prefer whispering that way i can see the messages you send
 
