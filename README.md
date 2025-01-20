@@ -6,6 +6,8 @@ Yuuuppp
 
 ![](https://komarev.com/ghpvc/?username=girlsrituals&color=lightgrey&style=flat&label=freaks)
 
+I also go by emi
+
 C + H okay !!!!
 
 No dni i block who i dont like thnx
