@@ -6,6 +6,6 @@ Yuuuppp
 
 ![](https://komarev.com/ghpvc/?username=girlsrituals&color=lightgrey&style=flat&label=freaks)
 
-[Read my txto](https://txto.eu.org/shift)
-
 C + H okay !!!!
+
+No dni i block who i dont like thnx
