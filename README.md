@@ -10,4 +10,4 @@ I also go by emi
 
 C + H okay !!!!
 
-No dni i block who i dont like thnx
+No dni i block or avoid who i dont like thnx
