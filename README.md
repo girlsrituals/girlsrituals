@@ -10,6 +10,6 @@ I also go by emi
 
 C + H okay !!!!
 
-No dni i block or avoid who i dont like thnx
+No dni i block or avoid who i dont like thnx. South park fans are on lowk on thin ice though
 
-Dandys world and south park fans are on thin ice (friends exempt) lowkey....
+Other than that sit with me interact be my Friend dont worry its Okay sweetie im a pretty chill guy yeah ! 
