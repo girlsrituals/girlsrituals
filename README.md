@@ -10,6 +10,6 @@ I also go by emi
 
 C + H okay !!!!
 
-No dni i block or avoid who i dont like thnx. South park fans are on lowk on thin ice though
+No dni i block or avoid who i dont like thnx.
 
-Other than that im a pretty chill guy ! Open to making new friends always but im really shy and bad at starting convos so u have to approach first sorrey
+Strawpage wip
