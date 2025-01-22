@@ -12,4 +12,4 @@ C + H okay !!!!
 
 No dni i block or avoid who i dont like thnx. South park fans are on lowk on thin ice though
 
-Other than that sit with me interact be my Friend dont worry its Okay sweetie im a pretty chill guy yeah ! 
+Other than that im a pretty chill guy
