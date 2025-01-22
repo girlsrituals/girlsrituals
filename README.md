@@ -12,4 +12,4 @@ C + H okay !!!!
 
 No dni i block or avoid who i dont like thnx. South park fans are on lowk on thin ice though
 
-Other than that im a pretty chill guy
+Other than that im a pretty chill guy ! Open to making new friends always but im really shy and bad at starting convos so u have to approach first sorrey
