@@ -1,15 +1,13 @@
 Yuuuppp
 
-![](https://file.garden/ZoDPf45LLl_qpQ-e/sou-hiyori%20(1).gif?v=1737090208975)
-
-^ What is rhat Thing ?
+![](https://file.garden/ZoDPf45LLl_qpQ-e/shime22.png?v=1737791950097)
 
 ![](https://komarev.com/ghpvc/?username=girlsrituals&color=lightgrey&style=flat&label=freaks)
 
-I also go by emi
+Hii im vivi or emi im 16 yrs old and i really like yttd and roblox 
 
-C + H okay !!!!
+C + H okay at all times !!!
 
-No dni i block or avoid who i dont like thnx.
+No dni i block or avoid who i dont like
 
 Strawpage wip
