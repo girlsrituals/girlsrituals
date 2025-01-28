@@ -2,7 +2,7 @@ Yuuuppp
 
 ![](https://file.garden/ZoDPf45LLl_qpQ-e/shime22.png?v=1737791950097)
 
-![](https://komarev.com/ghpvc/?username=girlsrituals&color=brightgreen&style=flat&label=freaks)
+![](https://komarev.com/ghpvc/?username=girlsrituals&color=green&style=flat&label=freaks)
 
 Hii im vivi or emi im 16 yrs old and i really like yttd and roblox 
 
