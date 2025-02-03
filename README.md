@@ -1,15 +1,3 @@
-Yuuuppp
-
-![](https://file.garden/ZoDPf45LLl_qpQ-e/shime22.png?v=1737791950097)
+![](https://file.garden/ZoDPf45LLl_qpQ-e/midori-yttd-yttd%20(1).gif?v=1738561774588)
 
 ![](https://komarev.com/ghpvc/?username=girlsrituals&color=69954e&style=flat&label=freaks)
-
-Hii im vivi or emi im 16 yrs old and i really like yttd and roblox 
-
-C + H okay at all times !!! (Unless if my name says otherwise)
-
-Reminder that i am really awkward and shy due to social anxiety regardless im still open to making new friends !! I just like to observe and sit down til someone starts a convo with me im bad at starting convos sorrey ... Ponywatching is my favorite activity
-
-No dni i block or avoid who i dont like
-
-[Read my strawpage](https://regret.straw.page/)
